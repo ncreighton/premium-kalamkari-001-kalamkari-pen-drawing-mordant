@@ -1,0 +1,2 @@
+# premium-kalamkari-001-kalamkari-pen-drawing-mordant
+Struggling to track mordant ratios and pen pressure while creating kalamkari designs? Most artists waste weeks experimenting with inconsistent results because they lack a centralized system for documenting their pen drawing techniques and mordant application methods.  The Kalamkari Pen Drawing Mordant Guide is a Notion template purpose-built to sol
